@@ -68,8 +68,8 @@
 - I learned something new — that placement is not the first step, but passion is.
 - If we have true passion, we can achieve anything we want in life.
 - Her words inspired me to focus on passion first, rather than just chasing results.
-- 
-
+### Speaker Name:Akshay Gidhar  
+### message :
 
 
 
