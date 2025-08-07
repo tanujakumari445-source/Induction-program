@@ -70,6 +70,62 @@
 - Her words inspired me to focus on passion first, rather than just chasing results.
 ### Speaker Name:Akshay Gidhar  
 ### message :
+-  Every student should develop leadership qualities.
+-  It is important to actively participate in technical activities.
+-  students should try to interact with seniors and learn from their experience.
+### Speaker Name:Harleen kaur Grewal
+### message :
+-  She spoke about the importance of self-identity — understanding who we are and where we come from.
+-  Self-awareness is the foundation of confidence and growth.
+-  Understanding ourselves leads to inner strength and clarity in decision-making.
+-  She motivated students to be proud of their journey and identity, no matter where they come from.
+-  She highlighted that personal growth starts with self-respect and self-acceptance
+### Speaker Name:Dr. Parminder Singh
+### message :
+-  Once you fix a target for yourself, no one can stop you — unless you stop believing.
+-  The most important thing is to stay focused on your goal no matter what distractions come your way.
+-  He emphasized the importance of building and improving your skills.
+-  Along with skills, one must also focus on their passion.
+-  He encouraged students to follow their hobbies and passion, as these can lead to personal and professional growth.
+-  Doing what you love brings dedication and consistency, which are keys to success.
+### Speaker Name:Dr Sejajpal Singh
+### message :
+-  Students should make a habit of doing regular revision to strengthen their understanding of subjects.
+-  He encouraged everyone to actively participate in co-curricular and extracurricular activities.
+-  He stressed the importance of recognizing your own potential.
+-  Once you identify your potential, you should work on it and move forward with confidence.
+-  Success comes when you balance academics with overall personality development.
+### Speaker Name:Ravindar Garg
+### message :
+-  In life, we should never give up, no matter how difficult the situation becomes.
+-  Always keep moving forward with a positive mindset.
+-  He encouraged students to actively participate in games and sports.
+-  Sports help in building discipline, confidence, and team spirit.
+-  Balancing academics with physical activities leads to overall growth and a healthy lifestyle.
+### Speaker Name:Dr k.s Maan (HOD of IT)
+### message :
+-  No branch or stream is big or small — all fields have equal value.
+-  What truly matters is the effort and dedication you put into your chosen branch.
+-  Every subject or stream offers opportunities for success if you work hard.
+-  Success doesn’t depend on the field, it depends on your commitment and consistency.
+### Speaker Name:Ashok Singla (Financial Advisor)
+### message :
+-  He gave information about the Vidya Lakshmi Loan scheme, which helps students with educational loans.
+-  His session was very informative and easy to understand.
+-  He also emphasized that in life, we should always try to stay happy and positive.
+-  Along with studies, it’s important to enjoy life and have some fun as well.
+### Speaker Name:Rakesh Kumar
+### message :
+- There is no shortcut to success — only hard work leads to real achievements.
+-  He advised students to never run after shortcuts or easy ways out.
+-  True success comes through dedication, consistency, and honest efforts.
+-  Shortcuts may give temporary results, but long-term success comes from hard work.
+## 1:00 to 2:00 (break time)
+- After the break, we went to the auditorium. From there, we were sent to our classrooms for a visit. During the visit, we were informed that in the first year, all students will have combined classes. After that, from the second year onwards, the classes will be held separately according to the branch. We were also shown our classroom and laboratory.
+
+## Day:-2 (1 august) 
+
+
 
 
 
