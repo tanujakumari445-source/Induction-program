@@ -124,6 +124,129 @@
 - After the break, we went to the auditorium. From there, we were sent to our classrooms for a visit. During the visit, we were informed that in the first year, all students will have combined classes. After that, from the second year onwards, the classes will be held separately according to the branch. We were also shown our classroom and laboratory.
 
 ## Day:-2 (1 august) 
+## 9:30 to 10:30 - English proficiency test
+## 10:30 to 11:30 - Maths proficiency test
+## 11:30 to 1:00 -(Break)
+## 1:00 to 3:00  (Auditorium)
+### Speaker Name: Dr. Arasheep Singh 
+### message :
+-  Dr. Arasheep Singh advised that we should bring healthy food to college.
+-  He said we should avoid soft drinks because they contain too much sugar.
+-  Eating and drinking healthy helps us to stay fit and active.
+-  When we are healthy, we can focus better on our studies.
+-  Good health ensures that we don’t miss classes due to illness.
+-  He emphasized that a healthy lifestyle is very important for students.
+### Speaker Name: seniors   
+### message :
+-   seniors informed us about the Cousmic Club and the IDEA induction activities.
+-  They encouraged us to actively participate in these activities.
+-  By participating regularly, we will remain active and engaged.
+-  This will help us to develop our skills over time.
+-  They also suggested that we should become members of every club or activity we’re interested in.
+-  Being involved in multiple activities will lead to better skill development and overall growth.
+   
+## Day:-3 (2 august) 
+## 9:00 to 1:00  (Auditorium)
+### Speaker Name: Dr. Jaswinder Singh   
+### message :
+-  Dr. Jaswinder Singh said that mathematics is not a joke; it is used everywhere in life.
+-  He gave an example from spirituality: when we take the name of Waheguru, we say "Ik On Kar" — and even here, the word “Ek” (One) shows the presence of mathematics.
+-  This means that math starts from the very beginning, even in spiritual expressions.
+-  He also explained the concept of reflection in physics.
+-  After that, he talked about vibrations.
+-  Using a string (straw) as a demonstration tool, he explained how touching one part of it can cause the whole structure to vibrate.
+-  This showed how vibrations travel through connected parts, making the concept easy to understand.
+### Speaker Name: Dr. Priya Darshani    
+### message :
+- Dr. Priya Darshani Ma’am talked about exploring and aspiration concerns.
+- She discussed Universal Human Values.
+- She explained the importance of good communication skills.
+- Then she spoke about the importance of relationships.
+- After that, she talked about facilities.
+- She emphasized that all three are very important in life.
+# Day:-4 (3 august)    HOLYDAY  
+
+## Day:-5 (4 august) 
+## 9:30 to 10:30- chymistry lecture 
+## 10:30 to 11:30- P2P Lecture
+## 11:30 to 12:30- (Break)
+## 12:30 to 3:30  (Auditorium)
+### Speaker Name: dr. Priya Darshani 
+### message :
+- Priya Darshani Ma’am talked about Universal Human Values.
+- She explained how we should manage our time.
+- She gave us an assignment to prepare a report on where we spend our time – in Right Understanding, Relationships, or Facilities.
+- My results showed that most of my time goes to Facilities, then to Relationships, and lastly to Right Understanding.
+### Speaker Name:seniors 
+### message :
+- The seniors talked about the Causim Club.
+- They told us to make a video and upload it.
+- They said this will help develop our skills.
+- They also mentioned that we will learn something new from it.
+## Day:-6 (5 august) 
+## 9:30 to 10:30- Engkish lecture 
+## 10:30 to 11:30- Maths Lecture
+## 11:30 to 12:30- BEEE Lecture
+
+## Day:-7 (6 august) 
+## 9:30 to 10:30- BEEE lecture 
+## 10:30 to 11:30- P2P Lecture
+## 11:30 to 12:30- (Break)
+## 12:30 to 4:00  (Auditorium)
+### Speaker Name:Dr. Arvind Dhingra (Director-Step & incharge-TAC)
+### message :
+- Dr. Arvind Dhingra talked about the college.
+- He said that GNDEC is one of the best government colleges in Punjab.
+- He told us that we are fortunate to be in such a good college.
+- He advised us to study well and participate in other activities.
+- He mentioned that many people dream of coming here.
+- Since we have got this opportunity, we should work hard and study sincerely.
+### Speaker Name: Mr. Jasvir Singh Sekhon(Director Resource Person-STEM)
+### message :
+-  Mr. Jasvir Singh Sekhon Sir gave a talk about digital marketing.
+-  He explained how to study effectively.
+-  He also guided the students on useful learning resources.
+-  He mentioned a website called Swayam, which contains lectures from IIT professors.
+-  He advised students to study from there, as it has very good professors and excellent lectures.
+  
+## Day:-8 (7 august) 
+## 9:30 to 12:30  (Auditorium)
+### Speaker Name: Dr. Amit Karma (Incharge DCM)   
+### message :
+-  Dr. Amit Karma Sir explained how we should participate and create video reels.
+-  He showed a video made by a senior student, first showing their initial video and then a recent one which was much better.
+-  Through this, he explained that we should also participate.
+-  He asked us to make reels or short videos and show them to him.
+-  The videos should be professional in quality.
+-  If the video is good, Sir said he would upload it to the official GNDEC profile.
+-  He showed a logo of DMC and explained that it was created by a senior pass-out student.
+-  He encouraged us to work hard and said that we can also achieve this.
+### Speaker Name: Dr. Randhira Singh   
+### message :
+- Dr. Randhira Singh’s Talk on Exams and Activities
+- Dr. Randhira Singh explained the structure of exams and how marks are distributed. The total marks are 160, divided into three parts:
+  Internal Exam: 40 marks
+  External Exam: 60 marks
+  Lab: 50 marks
+- Internal Exam Breakdown:
+  MST (Mid-Semester Test): 24 marks
+  Assignment: 10 marks
+  Attendance: 6 marks (full marks only if attendance is above 90%, otherwise marks will be reduced)
+- Sir also highlighted that marks are awarded for extracurricular participation. For example:
+  Joining NCC or NSS gives 10 marks.
+- Taking part in sports, arts, mehndi, and other cultural activities also earns marks.
+- He stressed that placement is not based on marks alone — good communication skills and active participation in other activities are equally important for success.
+## 12:30 to 1:30-(Break) 
+## 1:30 to 2:30- chymistry lecture 
+## 2:30 to 3:30- P2P Lecture
+
+## Day:-9 (8 august) 
+## 9:00 to 10:30- ID Card Formation
+## 10:30 to 12:00- English Lecture
+
+
+
+
 
 
 
